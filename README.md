@@ -15,3 +15,5 @@
 - Thamanna Sajeevan
 - Rejin
 - Noufal NS
+- Shafna s Kamal
+- Sruthi
