@@ -16,6 +16,7 @@
 - Rejin
 - Noufal NS
 - Shafna s Kamal
+- Binoja V V
 - Josmy V Joseph
 - Gurumithra S S
 - Abilash SP
